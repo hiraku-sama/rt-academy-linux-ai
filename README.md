@@ -14,5 +14,5 @@ Curso gratuito y en vivo creado por **RT Solutions** para enseñar el uso práct
 Transmisiones en vivo por **Teams**, **Meet**, **YouTube** y **TikTok**.
 
 ## 📩 Inscripción
-👉 [Formulario de inscripción](https://forms.gle/)
+👉 [Unirme al grupo de WhatsApp](https://chat.whatsapp.com/FnHJvm4RvItGf2y0Ln8yDF)
 
